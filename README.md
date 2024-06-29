@@ -1,15 +1,11 @@
-
 # MoonerPaid-Cracked
 
- An Exclusively Remunerated ModMenu for Gorilla Tag, Orchestrated Without My Participation in the Unlawful Act of Cracking; Trust Me, Good Fellow :)
+This is an exclusive, paid mod menu for Gorilla Tag, created without my involvement in the illegal act of cracking. Trust me ;)
 
-Moreover, I Admonish You with the Utmost Urgency Not to Install This From Any Other Source, as Anyone Claiming to Have Cracked It Is Probably Virus. So I would not recommend it. 
+I strongly advise you not to install this from any other source, as anyone claiming to have cracked it is most likely distributing a virus. Therefore, I do not recommend it.
 
-# Discliamer
-(I, the Creator, Disclaim any Responsibility for the Consequences of Your Actions, Including Any Penalties or Sanctions Incurred in Gorilla Tag.)
-
-
+# Disclaimer
+As the creator, I do not accept any responsibility for the consequences of your actions, including any penalties or sanctions incurred in Gorilla Tag.
 
 # Help
-Before Running Gorilla Tag Please Run the Mooner Paid Crack Then Run Gorilla Tag that should fix all of your problems (Most of them lmao)
- 
+Before running Gorilla Tag, please run the Mooner Paid Crack, and then launch Gorilla Tag, which should resolve most of your issues (well, most of them, haha). If it detects a virus, it's because it's injecting code into Gorilla Tag, so just click "run anyway" or "download anyway."
