@@ -1,13 +1,13 @@
 # MoonerPaid-Cracked
 
-A Paid gorilla tag modmenu That was not Cracked by me trust me ;) 
+ more_vertAn Exclusively Remunerated ModMenu for Gorilla Tag, Orchestrated Without My Participation in the Unlawful Act of Cracking; Trust Me, Good Fellow :)
 
-ALSO DO NOT INSTALL THIS FROM ANYTHING ELSE ANYONE WHO SAYS THEY CRACKED IT. IT A VIRUS
+Moreover, I Admonish You with the Utmost Urgency Not to Install This From Any Other Source, as Anyone Claiming to Have Cracked It Is Perpetuating a Perilous Deception, Disseminating a Virulent Virus Instead.
 
 # Discliamer
-(I am not responsible for any bans you get in gorilla tag )
+(I, the Creator, Disclaim Any and All Responsibility for the Consequences of Your Actions, Including Any Penalties or Sanctions Incurred in the Virtual Realm of Gorilla Tag; Proceed at Your Own Risk, Brave Cyber Adventurer.)
 
 
 
 # Help
-Make sure to run the  File first Then you can open up gorilla tag that should fix all of ur  problems Have Fun
+ more_vertBefore Initiating the Application, Ensure That You Execute the File First, Subsequently Launching Gorilla Tag, Following Which All of Your Predicaments Should Be Resolved, Enterprising User. Now, Go Ahead and Enjoy the Experience!
