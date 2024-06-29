@@ -5,9 +5,10 @@
 Moreover, I Admonish You with the Utmost Urgency Not to Install This From Any Other Source, as Anyone Claiming to Have Cracked It Is Perpetuating a Perilous Deception, Disseminating a Virulent Virus Instead.
 
 # Discliamer
-(I, the Creator, Disclaim Any and All Responsibility for the Consequences of Your Actions, Including Any Penalties or Sanctions Incurred in the Virtual Realm of Gorilla Tag; Proceed at Your Own Risk, Brave Cyber Adventurer.)
+(I, the Creator, Disclaim Any and All Responsibility for the Consequences of Your Actions, Including Any Penalties or Sanctions Incurred in Gorilla tag.)
 
 
 
 # Help
-Before Initiating the Application, Ensure That You Execute the File First, Subsequently Launching Gorilla Tag, Following Which All of Your Predicaments Should Be Resolved, Enterprising User. Now, Go Ahead and Enjoy the Experience!
+Before Running Gorilla tag Please Run the Mooner Paid Crack Then Run Gorilla Tag that should fix all of ur problems (Most of them lmao)
+ 
