@@ -10,4 +10,4 @@ Moreover, I Admonish You with the Utmost Urgency Not to Install This From Any Ot
 
 
 # Help
- more_vertBefore Initiating the Application, Ensure That You Execute the File First, Subsequently Launching Gorilla Tag, Following Which All of Your Predicaments Should Be Resolved, Enterprising User. Now, Go Ahead and Enjoy the Experience!
+Before Initiating the Application, Ensure That You Execute the File First, Subsequently Launching Gorilla Tag, Following Which All of Your Predicaments Should Be Resolved, Enterprising User. Now, Go Ahead and Enjoy the Experience!
